@@ -1,2 +1,2 @@
 # dawn
-just something interesting to me,not big,just fun
+just something interested to me,not big,just fun
